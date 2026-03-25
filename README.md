@@ -1,1 +1,0 @@
-# MYS---Proyecto-Esquina-Noroeste
